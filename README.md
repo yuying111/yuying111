@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋  I'm Yuying.
+- 😄 Pronouns: She
+- ⚡ Fun fact: my comfort food is hazelnut chocolate🍫 
 
 <!--
 **yuying111/yuying111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
